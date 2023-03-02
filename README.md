@@ -37,3 +37,4 @@ Server_file: 14GB
 I'm the programmer of the software, selling or redistribution is not allowed because it's limited per laptop.
 I'm in turkey, demo avalaible only for face to face deal    
 Telegram admin: @trader_227
+Telegram channel: https://t.me/flash_btc_usdt_2023
